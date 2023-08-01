@@ -5,5 +5,4 @@ Check out my website at [froogo.co.uk](https://froogo.co.uk), or some of my proj
 
 ### Contact me
 Via email: harry@froogo.co.uk  
-Via Discord: Froogo#8004  
-Via Steam: [Froogo](https://steamcommunity.com/id/Froogo)
+Via Discord: froogo.
